@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Drcryptoexpert
-- 👀 I’m interested in orking on tokens development
+- 👀 I’m interested in working on tokens development
 - 🌱 I’m currently learning about crypto and tokens various utility
-- 💞️ I’m looking to collaborate on building unique unexplored domain in crypto sytem
+- 💞️ I’m looking to collaborate on building unique unexplored domain in crypto system
 - 📫 Just call me on +919320145925 or whatsup me.
 
 <!---
